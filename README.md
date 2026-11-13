@@ -1,0 +1,1 @@
+# GorickiyAi12-1course
